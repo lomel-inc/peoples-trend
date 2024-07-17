@@ -1,4 +1,4 @@
-### Video para Tik Tok (Guión para influencer)
+## ¡Atrévete a ser tú mismo!
 
 **Influencer:**  
 "¡Hola a todos! Como dice RuPaul, 'Si no puedes amarte a ti mismo, ¿cómo diablos vas a amar a alguien más?' Por eso hoy les traigo la camiseta 'People's Trend'. *[Muestra la camiseta]*"
